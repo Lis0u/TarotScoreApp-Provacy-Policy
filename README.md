@@ -1,0 +1,1 @@
+# TarotScoreApp-Provacy-Policy
